@@ -1,1 +1,0 @@
-# aufykgegsa.github.io
